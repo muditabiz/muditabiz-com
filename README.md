@@ -1,3 +1,0 @@
-Welcome to Mudita Business Consulting!
-
-Website coming soon...
